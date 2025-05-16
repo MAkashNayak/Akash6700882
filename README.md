@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **DSA**
 
-- 📫 How to reach me **akashmalothu9154@gmail.com**
+- 📫 How to reach me **akashnyk9154@gmail.com**
 
 - ⚡ Fun fact **I think I Funny**
 
